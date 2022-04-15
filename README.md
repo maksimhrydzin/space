@@ -1,1 +1,1 @@
-https://GITHUB-USERNAME.github.io/space/
+https://maksimhrydzin.github.io/space/
